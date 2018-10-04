@@ -1,16 +1,18 @@
-400 g de Arroz Brillante Sabroz
-1 muslo de pollo con piel deshuesado
-1 diente de ajo grande
-1 cebolla
-1 tomate maduro
-1 cucharadita de pimentón dulce
-100 g de judías verdes
-100g de chorizo
-8 mejillones
-4 langostinos
-1 pimiento rojo asado, pelado y cortado en tiras
-Unas hebras de azafrán o colorante alimentario
-Aceite de oliva y sal
+# Paella Mixta
+
+- 400 g de Arroz Brillante Sabroz
+- 1 muslo de pollo con piel deshuesado
+- 1 diente de ajo grande
+- 1 cebolla
+- 1 tomate maduro
+- 1 cucharadita de pimentón dulce
+- 100 g de judías verdes
+- 100g de chorizo
+- 8 mejillones
+- 4 langostinos
+- 1 pimiento rojo asado, pelado y cortado en tiras
+- Unas hebras de azafrán o colorante alimentario
+- Aceite de oliva y sal
 
 Abrir los mejillones en la paella con un chorreón de aceite, cuando estén los retiramos a un plato.
 Trocear el pollo y sofreírlo en la paellera. Dorar 5 minutos a fuego medio – fuerte. Cuando esté crujiente, retirar y reservar.
