@@ -11,3 +11,9 @@ Valencia in Eastern Spain is the undisputed home of paella. It is one of the lar
 
 Where can you get the best paella in Barcelona? This is a really common question for visitors coming over to visit this beautiful city. It’s the one following questions,“What should I see?” and of course, “Where should I stay in Barcelona?”
 
+‘Paella’ – where did the name come from ?
+It’s a little confusing but ’paella’ or to be more exact ‘la paella’ is the name for cooking pan itself and not the dish. The word comes from old Valencian (in Valencia they have their own language somewhat similar to Catalan) and probably has its roots in the Latin 'patella' meaning pan.
+
+There are however, some other wonderful (if less likely) theories about the origins of the name. The most romantic of them suggests that the dish was first prepared by a lover for his fiancée and that the word is a corruption of ‘para ella’ (meaning ‘for her’ in Spanish). Like all myths there is a small grain of truth in this and although many women still traditionally do the cooking in Spain, making paella is usually left to the men  - very much like BBQ’s in the UK!!!
+
+It has also been suggested that the word ‘paella’, is derived from the Arabic word "Baqiyah", which means ‘leftovers’  - once again emphasizing both the dish's humble and arabic beginnings.
