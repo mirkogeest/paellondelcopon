@@ -39,3 +39,58 @@ En este momento también podemos añadir, al gusto y como hacen en algunas comar
 
 6. Después, para una bonita y correcta presentación si lo deseamos, podemos si queremos servirlo en cazuela de barro.
 
+## Poema
+Por cierto, este plato tan característico conquistó al mismísimo Teodor Llorente, quien le dedicó un poema en 1892:
+
+Per l’horta, tocant migdia,
+
+plens d’infantil alegria,
+
+ditxosos i satisfets,
+
+tornaven a l’alqueria
+
+dos pobres fematerets.
+
+L’un i l’altre, a l’escoltar
+
+les dotze, que en so de queixa
+
+els cridaven a la llar,
+
+tingueren una mateixa
+
+idea: la del dinar.
+
+Lo més menut, que li guanya
+
+a l’altre que l’acompanya
+
+en vivor, li digué així:
+
+ ‘Si fores el Rei d’Espanya
+
+que dinaries tu avui?.’
+
+Alçant lo front ple d’arraps,
+
+i soltant la llengua prompta,
+
+li contestà: ‘Pués, no ho saps?
+
+Quina pregunta més tonta…!
+
+Arròs en fesols i naps.’
+
+ ‘I tu?’ —afegí lo major—.
+
+Lo menut llançà un sospir,
+
+i torcant-se la suor,
+
+li replicà: ‘Què he de dir,
+
+si tu has dit ja lo millor?’
+
+
+
