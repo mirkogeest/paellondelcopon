@@ -1,3 +1,5 @@
+** this recipe is only spanish
+
 # Arroz negro
 
 Este arroz negro con sepia y alioli es una receta estupenda para disfrutar este verano. Una propuesta "sencilla" a la cual nosotros sólo hemos puesto sepia, pero se puede añadir para enriquecer aun más, si se quiere, unas gambas o langostinos pelados, unas vieiras, o cualquier otro tipo de pescado.
