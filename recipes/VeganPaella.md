@@ -1,5 +1,5 @@
 **INGREDIENTES**
-* 2 cucharadas de aceite de oliva virgen extra
+* 3 cucharadas de aceite de oliva virgen extra
 * 4 dientes de ajo
 * 1/2 cebolla
 * 1/2 pimiento rojo
