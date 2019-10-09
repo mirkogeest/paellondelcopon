@@ -1,3 +1,4 @@
+**Ingredients**
 1 lemon
 2-1/2 cups pink rhubarb, trimmed and cut into 1-1/4″ lengths
 1/2 cup caster (superfine) sugar
@@ -7,7 +8,7 @@ Scant 3 cups goat’s milk
 2 small very fresh soft goat’s cheese crottins, about 2 oz. each
 Scant 1/2 cup preserved cherries, to decorate
 
-Directions
+**Directions**
 Step 1: Use a vegetable peeler to remove the zest from the lemon without including any of the white pith. Put the rhubarb and lemon zest in a non-reactive bowl. Add the sugar, mix through and let macerate for 6 hours, stirring occasionally. The sugar will draw out the moisture from the rhubarb stems to form a syrup.
 
 Step 2: Pour the goat’s milk into a paella pan. Add the lemon zest and sultanas (golden raisins), and bring to a boil. Add the rice, spreading it evenly over the bottom of the pan, and reduce the heat to as low as possible. If you have a timer, set for 45 minutes and continue cooking very gently. Do not allow to boil.
