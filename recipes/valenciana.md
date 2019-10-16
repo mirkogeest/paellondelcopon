@@ -25,4 +25,4 @@ Otra variedad es la paella mixta, que se puede servir con ingredientes como meji
 
 ## Presentación
 
-Se sirve en la propia paellera y es conveniente que repose 5 ó 6 minutos.
+Se sirve en la propia paellera y es conveniente que repose 5 ó 6 minutos. Añade rodajas de limón al gusto. Qué aproveche!
