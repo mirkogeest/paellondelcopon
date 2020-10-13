@@ -36,3 +36,5 @@ En este momento volcamos el litro de caldo caliente sobre el arroz y lo repartim
 Cuando comience a hervir rectificamos de sal en este momento, añadimos los mejillones y cuando se abran, les vamos quitando las valvas, dejando la carne en el guiso.
 Pasados 7 u 8 minutos, bajamos el fuego a suave e incorporamos los dados de atún y los langostinos pelados. Y en otros 12 o 13 minutos apagamos el fuego, cubrimos la paella con un paño limpio y dejamos reposar unos 5 o 10 minutos. 
 Y a comer.
+
+!!Qué aproveche!!
