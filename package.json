@@ -1,0 +1,9 @@
+{
+  "name": "paellondelcopon",
+  "version": "1.0.0",
+  "description": "A huge paella",
+  "main": "index.js",
+  "repository": "git@github.com:mirkogeest/paellondelcopon.git",
+  "author": "mirko & friends",
+  "license": "MIT"
+}
