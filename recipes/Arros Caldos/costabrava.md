@@ -22,4 +22,6 @@ Colocar un poco de aceite en una paellera y calentarlo, luego colocar las langos
 
 Finalmente se añade ¾ de litro del caldo de pescado y las langostas y se deja hervir, se baja un poco la llama y de deja cocinar, si es necesario se puede agregar el restante caldo de pescado, es importante ajustar la sal durante la cocción.
 
+Sobre todo que no se queme el arroz!
+
 ¡Buen Provecho!
